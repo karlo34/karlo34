@@ -1,4 +1,4 @@
-### Karlo Marasović 👋
+# Karlo Marasović 👋
 
 **`Student at School of design, graphics and sustainable construction`**
 
